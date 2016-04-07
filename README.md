@@ -1,1 +1,1 @@
-### GitHub Pages für den Girlsday an der SUB Göttingen
+### GitHub Pages für den Zukunftstag an der SUB Göttingen
